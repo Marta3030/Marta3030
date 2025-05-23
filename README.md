@@ -30,8 +30,8 @@ I’m open to freelance or consulting projects in:
 - Remote consulting (EN/ES)
 
 ## 📫 Contact Me
-- 📧 Email: [your email here]
-- 🌐 LinkedIn: [linkedin.com/in/tuusuario](https://www.linkedin.com/in/tuusuario)  
+- 📧 Email: mrsalazarreyes@gmail.com
+- 🌐 LinkedIn: www.linkedin.com/in/marta-salazar-reyes 
 - 🌍 Languages: Spanish (native), French (intermediate), English (intermediate)
 
 ## 😄 Fun Fact
